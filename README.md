@@ -1,8 +1,6 @@
 
 ## 
 
-Scriptwriter_Trial_Assignment.md
-
 # Crumb Scriptwriter Trial Assignment
 
 Welcome, and thanks for your interest in writing for Crumb. This trial is designed to evaluate your fit as a scriptwriter for our channel.
